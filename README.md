@@ -1,0 +1,1 @@
+# Cool.Blank-Domain
